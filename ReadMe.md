@@ -28,3 +28,5 @@ https://shimingka.top
 
 接码：
 https://kuaijiema.top
+
+<img src="pic/bbb.png" alt="TikTok注册专用接码平台" border="0">
